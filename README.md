@@ -11,9 +11,9 @@ Contact:
 
 Dr. Mohammad Saeed
 
-Senior Scientist
+Consultant Rheumatology and Immunogenetics
 
-ImmunoCure Clinic and Laboratories
+ImmunoCure
 
 
 Suite 116, 1st Floor, The Plaza,
@@ -22,4 +22,4 @@ Suite 116, 1st Floor, The Plaza,
 
 Karachi, Pakistan
 
-Email: msaeed.immunocure@gmail.com
+Email: msaeed@immunocure.pk ; msaeed.immunocure@gmail.com
